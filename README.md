@@ -4,7 +4,7 @@ If you're planning to join Gate.io, using a referral code during registration ca
 
 Right now, one of the most competitive invitation codes available is:
 
-👉 **Gate.io Referral Code: `OURCODES`**
+👉 **[Gate.io Referral Code](https://gateioreferralcode.com/): `OURCODES`**
 
 By using this code, new users can unlock:
 
