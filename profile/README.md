@@ -1,7 +1,3 @@
----
-
-# Gate.io Referral Code: **OURCODES** (2,000 USDT and 50% Discount Trading Fees)
-
 If you're planning to join Gate.io, using a referral code during registration can significantly increase your benefits from day one.
 
 Right now, one of the most competitive invitation codes available is:
@@ -110,7 +106,3 @@ Using a referral code takes only a few seconds but can provide long-term benefit
 💸 **Fee Discount:** Up to 50%
 
 Start trading smarter from day one.
-
----
-
-直接帮你做成一套 **流量矩阵内容**。
